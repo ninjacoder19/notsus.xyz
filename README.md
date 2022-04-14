@@ -1,1 +1,1 @@
-# notsus.xyz
+# not-sus-site
